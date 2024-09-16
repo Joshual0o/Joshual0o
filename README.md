@@ -1,4 +1,4 @@
-## Hi there 👋
+Hi! Welcome to my professional gambling room! 99% of people quit before they win big, so keep trying!
 
 <!--
 **Joshual0o/Joshual0o** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
